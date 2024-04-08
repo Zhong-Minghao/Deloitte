@@ -10,4 +10,4 @@ Thank you for your interest in reviewing my work.
 
 ## Author
 
-[Minghao](https://www.linkedin.com/in/minghao-zhong-ba8062286/)
+[Zhong Minghao](https://www.linkedin.com/in/minghao-zhong-ba8062286/)
